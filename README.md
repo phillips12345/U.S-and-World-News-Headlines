@@ -1,0 +1,2 @@
+# U.S-and-World-News-Headlines
+NPR is an independent, nonprofit media organization that was founded on a mission to create a more informed public. Every day, NPR connects with millions of Americans on the air, online, and in person to explore the news, ideas, and what it means to be human. Through its network of member stations, NPR makes local stories national, national stories local, and global stories personal. 
